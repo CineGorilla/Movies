@@ -1,4 +1,4 @@
 ---
-title: Pushpa 2: The Rule
+title: Pushpa 2 The Rule
 ---
 
