@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: Pushpa 2: The Rule
 ---
 
