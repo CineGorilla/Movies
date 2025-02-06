@@ -1,3 +1,0 @@
-title: KGF2
-description: In the blood-soaked Kolar Gold Fields, Rocky's name strikes fear into his foes, while the government sees him as a threat to law and order. Rocky must battle threats from all sides for unchallenged supremacy.
-watch the movie here for free https://cinegorilla.com/movie/kgf-chapter-2/
